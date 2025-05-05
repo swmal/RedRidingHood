@@ -1,2 +1,0 @@
-## Kapitel 1: Rödluvan och hennes uppdrag
-Det var en gång en liten flicka som bodde i en by nära skogen. Hon kallades Rödluvan eftersom hon alltid bar en röd mantel med en huva. En dag bad hennes mamma henne att ta med en korg med mat till hennes sjuka mormor som bodde i en stuga djupt inne i skogen. "Kom ihåg att gå direkt till mormor och prata inte med främlingar," sa hennes mamma. Rödluvan lovade att följa sin mammas råd och gav sig iväg.
