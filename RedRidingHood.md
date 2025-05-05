@@ -1,0 +1,2 @@
+## Kapitel 3: Vargens listiga plan
+Vargen fick en idé och tänkte att han kunde få både Rödluvan och hennes mormor till middag. "Var bor din mormor?" frågade han. Rödluvan pekade mot stugan längre in i skogen. "Där borta, vid den stora eken." Vargen log och sa: "Varför plockar du inte fler blommor till din mormor? Hon skulle säkert bli ännu gladare." Rödluvan tyckte att det var en bra idé och började plocka fler blommor, medan vargen skyndade sig till mormors stuga.
