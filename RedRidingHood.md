@@ -1,2 +1,4 @@
-## Kapitel 1: Rödluvan och hennes uppdrag
+﻿## Kapitel 1: Rödluvan och hennes uppdrag
 Det var en gång en liten flicka som bodde i en by nära skogen. Hon kallades Rödluvan eftersom hon alltid bar en röd mantel med en huva. En dag bad hennes mamma henne att ta med en korg med mat till hennes sjuka mormor som bodde i en stuga djupt inne i skogen. "Kom ihåg att gå direkt till mormor och prata inte med främlingar," sa hennes mamma. Rödluvan lovade att följa sin mammas råd och gav sig iväg.
+## Kapitel 3: Vargens listiga plan
+Vargen fick en idé och tänkte att han kunde få både Rödluvan och hennes mormor till middag. "Var bor din mormor?" frågade han. Rödluvan pekade mot stugan längre in i skogen. "Där borta, vid den stora eken." Vargen log och sa: "Varför plockar du inte fler blommor till din mormor? Hon skulle säkert bli ännu gladare." Rödluvan tyckte att det var en bra idé och började plocka fler blommor, medan vargen skyndade sig till mormors stuga.
